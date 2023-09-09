@@ -47,6 +47,10 @@
 ## 7. Feedback & Growth:
 - **Commitment to Support**: High expectations come with a commitment to helping everyone succeed. Our growth is interlinked.
 - **Always Open to Feedback**: Feedback is invaluable. Let's consistently share and adapt, refining our collaborative rhythm.
+- **Growth Through Mistakes**: Every misstep is a stepping stone towards progress. I value the lessons we extract from our mistakes more than the mistakes themselves.
+- **No Blame Game**: Instead of assigning blame when things go awry, I prioritize understanding the root cause and strategizing on ways to improve.
+- **Resilience Over Perfection**: While we aim for excellence, it's our ability to rebound from setbacks that truly defines our character and trajectory.
+
 
 ## 8. Fun Fact About Me:
 There's an intriguing parallel between producing music and making business. Both processes require attention to detail and a sprinkle of creativity.
