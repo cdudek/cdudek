@@ -27,12 +27,16 @@
 
 ## 5. What You Might Notice About Me:
 - **Deep Thinker**: Being analytical often means diving deep into thought. This focus is part of my process.
+- **Emotion Meets Logic**: As an INTP, while I am deeply logical and analytical, I recognize the value of emotional intelligence in team dynamics and decision-making. I often engage in introspective analysis to understand my emotions and those of others. Although I may not always wear my emotions on my sleeve, I'm continuously striving to integrate emotional insights with logical reasoning for a well-rounded perspective.
 - **Data-Driven Decision Maker**: I strongly rely on facts, data, and empirical evidence when making decisions. While intuition and gut-feel play a role, I prioritize objective information to guide the way forward.
 - **Perceived Arrogance**: Sometimes, my directness or analytical approach might come off as arrogant. Please know this is never intentional; it's just my commitment to the task.
 
 ## 6. How I Handle Conflict:
 - **Objective Analysis**: Issues are approached by examining facts and understanding the root causes.
 - **Open Dialogue**: Different perspectives enrich our solutions. Open, transparent discussions pave the way forward.
+- **Clarity**: Ambiguity and misinformation can be sources of frustration. I value clarity and will often ask questions to ensure I fully understand all perspectives and to clear up any misconceptions.
+- **Solution-Oriented**: Once I have all the necessary information, my focus shifts to problem-solving. I'm interested in finding the most efficient and logical solutions to conflicts, and I value input from the team to reach the best resolution.
+
 
 ## 7. Feedback & Growth:
 - **Commitment to Support**: High expectations come with a commitment to helping everyone succeed. Our growth is interlinked.
