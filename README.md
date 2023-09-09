@@ -18,6 +18,13 @@
 ## 3. My Expectations:
 - **Strive for Precision**: While my expectations are high, know that I'm always here to support and guide. Let's excel together.
 - **Open Communication**: Clarity is essential. If there's any ambiguity or uncertainty, let's address it promptly.
+- **Logical Reasoning**: Decisions and actions backed by logical reasoning resonate with me. While intuitive insights are valuable, structured and well-thought-out arguments often hold more weight in our discussions. If you're passionate about an idea, come prepared with your rationale.
+- **Independent Initiative**: Taking the initiative and showing that you can lead a project or task is highly appreciated. While guidance and collaboration are important, demonstrating autonomy in your role can be impactful.
+- **Respect for Exploration**: Efficiency is important, but so is the freedom to explore and innovate. If you're proposing a new approach or method, be ready to discuss its merits and potential challenges. Teach me.
+- **Continuous Learning**: I believe in expanding one's knowledge and understanding. I encourage you to ask questions, dive deeper into topics, and share new insights with the team. This not only elevates our work but also fosters a culture of growth.
+
+
+
 
 ## 4. Integrity & Authenticity:
 - **Walk the Talk**: In the world of music, techno & house emphasize authenticity and genuine expression. Similarly, in our work environment, it's paramount to me that we not only articulate our intentions but also follow through with corresponding actions. In other words, if we say we're going to do something, we do it.
