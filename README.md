@@ -26,7 +26,7 @@
 
 
 ## 4. Integrity & Authenticity:
-- **Walk the Talk**: In the world of music, techno & house emphasize authenticity and genuine expression. Similarly, in our work environment, it's paramount to me that we not only articulate our intentions but also follow through with corresponding actions. In other words, if we say we're going to do something, we do it.
+- **Walk the Talk**: It's paramount to me that we not only articulate our intentions but also follow through with corresponding actions. In other words, if we say we're going to do something, we do it.
 - **Consistency is Key**: Being consistent in our actions fosters trust. It's about setting clear expectations and meeting them time and again. 
 - **Expect the Same From Me**: I hold myself to the same standard. If I commit to something, you can expect me to deliver, and I hope you'd hold me accountable if I fall short.
 
