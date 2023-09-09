@@ -34,7 +34,7 @@
 ## 5. What You Might Notice About Me:
 - **Deep Thinker**: Being analytical often means diving deep into thought. This focus is part of my process.
 - **Emotion Meets Logic**: While I am deeply logical and analytical, I recognize the value of emotional intelligence in team dynamics and decision-making. I often engage in introspective analysis to understand my emotions and those of others. Although I may not always wear my emotions on my sleeve, I'm continuously striving to integrate emotional insights with logical reasoning for a well-rounded perspective.
-- **Data-Driven Decision Maker**: I strongly rely on facts, data, and empirical evidence when making decisions. While intuition and gut-feel play a role, I prioritize objective information to guide the way forward.
+- **Data-Driven Decision Maker**: I strongly rely on facts, data, and empirical evidence when making decisions. While intuition and gut-feel play a role, I prioritize objective and accurate information to guide the way forward.
 - **Perceived Arrogance**: Sometimes, my directness or analytical approach might come off as arrogant. Please know this is never intentional or meant in a bad way; it's just my commitment to the task, continuous improvement and caring.
 
 ## 6. How I Handle Conflict:
