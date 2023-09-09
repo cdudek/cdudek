@@ -20,7 +20,8 @@
 - **Open Communication**: Clarity is essential. If there's any ambiguity or uncertainty, let's address it promptly.
 - **Innovative Curiosity**: While we strive for efficiency, the quest for novelty is equally paramount. If you're venturing into uncharted territories with a new strategy or technique, arm yourself with its merits and potential setbacks. Let's venture, discover, and learn together.
 - **Lifelong Learning**: Our industry and roles are ever-evolving. Embrace the journey of continuous education, delve deeper into nuances, and spark enlightening discussions. Every day is an opportunity to learn and evolve.
-- **Independent Initiative**: Taking the lead on projects stands out. I offer guidance, but your autonomy in your role speaks volumes.
+- **Independent Initiative**: Taking the initiative and showing that you can lead a project or task is highly appreciated. I offer guidance, but your autonomy in your role speaks volumes.
+
 
 
 
