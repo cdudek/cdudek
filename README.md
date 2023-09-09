@@ -6,7 +6,7 @@
 
 ## 1. About Me:
 - **Product Ninja & Engineer Turned Business Leader**: With roots in marketing, product management and hands-on software engineering, I've garnered a unique perspective, seamlessly blending technical insights with strategic business thinking.
-- **Music & Rhythm**: Beyond tech and business, I'm deeply immersed in the realms of techno and house music, producing tracks that harmonize with both my analytical and creative sides.
+- **Music & Rhythm**: Beyond tech and business, I'm deeply immersed in the realms of music, producing tracks that harmonize with both my analytical and creative sides.
 - **Candid & Direct**: I care personally and challenge directly. This translates to straightforward feedback or concerns, as I believe directness fosters growth and clarity.
 
 ## 2. My Management Style:
