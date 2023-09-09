@@ -30,7 +30,7 @@
 - **Always Open to Feedback**: Feedback is invaluable. Let's consistently share and adapt, refining our collaborative rhythm.
 
 ## 7. Fun Fact About Me:
-There's an intriguing parallel between producing a techno track and building software. Both processes require attention to detail and a sprinkle of creativity.
+There's an intriguing parallel between producing a techno track and building things. Both processes require attention to detail and a sprinkle of creativity.
 
 ---
 
