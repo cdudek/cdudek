@@ -27,6 +27,7 @@
 
 ## 5. What You Might Notice About Me:
 - **Deep Thinker**: Being analytical often means diving deep into thought. This focus is part of my process.
+- **Data-Driven Decision Maker**: I strongly rely on facts, data, and empirical evidence when making decisions. While intuition and gut-feel play a role, I prioritize objective information to guide the way forward.
 - **Perceived Arrogance**: Sometimes, my directness or analytical approach might come off as arrogant. Please know this is never intentional; it's just my commitment to the task.
 
 ## 6. How I Handle Conflict:
