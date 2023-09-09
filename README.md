@@ -1,4 +1,4 @@
-# Manager README: [Your Name Here], An INTP Techno & House Music Producer, Analyst, and Software Engineer
+# Manager README: Calvin, An INTP Techno & House Producer, Builder, Entrepreneur, Product Manager & Analyst, and Software Engineer
 
 👋 Hi there! Welcome to the team. This README provides insights into my multifaceted background, management style, and personality, serving as a foundation for our collaboration.
 
