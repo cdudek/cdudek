@@ -17,6 +17,12 @@
 - **Strive for Precision**: While my expectations are high, know that I'm always here to support and guide. Let's excel together.
 - **Open Communication**: Clarity is essential. If there's any ambiguity or uncertainty, let's address it promptly.
 
+## 3.5 Integrity & Authenticity:
+- **Walk the Talk**: In the world of music, techno & house emphasize authenticity and genuine expression. Similarly, in our work environment, it's paramount to me that we not only articulate our intentions but also follow through with corresponding actions. In other words, if we say we're going to do something, we do it.
+- **Consistency is Key**: Being consistent in our actions fosters trust. It's about setting clear expectations and meeting them time and again. 
+- **Expect the Same From Me**: I hold myself to the same standard. If I commit to something, you can expect me to deliver, and I hope you'd hold me accountable if I fall short.
+
+
 ## 4. What You Might Notice About Me:
 - **Deep Thinker**: Being analytical often means diving deep into thought. This focus is part of my process.
 - **Perceived Arrogance**: Sometimes, my directness or analytical approach might come off as arrogant. Please know this is never intentional; it's just my commitment to the task.
