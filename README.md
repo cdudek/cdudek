@@ -13,6 +13,7 @@
 ## 2. My Management Style:
 - **Autonomy & Trust**: Your expertise is valued here. I offer autonomy and, in return, expect excellence.
 - **Growth Mindset**: Continuous learning and adaptability are key. I view challenges as growth opportunities.
+- **Coaching & Personal Development**: My approach is collaborative – I aim to provide guidance, resources, and feedback that can help you navigate challenges and maximize your strengths. Remember, coaching isn't about changing who you are, but enhancing what you bring to the table.
 - **Frequent Feedback**: Regular feedback refines our strategies and ensures alignment. I value both giving and receiving it.
 - **Navigating Ambiguity**: One of my strengths is handling ambiguity and uncertainty. It's essential in our fast-paced world, and I encourage seeing it as an opportunity to innovate and pave new paths.
 
