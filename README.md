@@ -8,6 +8,7 @@
 - **Product Ninja & Engineer Turned Business Leader**: With roots in marketing, product management and hands-on software engineering, I've garnered a unique perspective, seamlessly blending technical insights with strategic business thinking.
 - **Music & Rhythm**: Beyond tech and business, I'm deeply immersed in the realms of music, producing tracks that harmonize with both my analytical and creative sides.
 - **Candid & Direct**: I care personally and challenge directly. This translates to straightforward feedback or concerns, as I believe directness fosters growth and clarity.
+- **My Journey of Growth**: Beyond guiding the team, I'm deeply committed to my own personal growth and learning. Every day presents an opportunity to evolve, and I actively seek them out. My passion for expanding my knowledge and skills isn't just limited to professional domains; it extends across all facets of life. By continuously growing myself, I aim to be a better leader and collaborator for you and our team.
 
 ## 2. My Management Style:
 - **Autonomy & Trust**: Your expertise is valued here. I offer autonomy and, in return, expect excellence.
