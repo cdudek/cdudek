@@ -1,4 +1,4 @@
-# Manager README: I'm an INTP, Techno & House Producer, Creator, Entrepreneur, Product Manager, Analyst, and Software Engineer.
+# Manager README: I'm an INTP, an Entrepreneur, a Creator, a Product Manager as well as a a Data and Software Architect & Engineer.
 
 👋 Hi there! Welcome to the team. This README provides insights into my multifaceted background, management style, and personality, serving as a foundation for our collaboration.
 
